@@ -1,0 +1,2 @@
+Florianopolis
+Rio de Janeiro
